@@ -1,1 +1,0 @@
-# rroottdepo  Depoma  Hoşg
